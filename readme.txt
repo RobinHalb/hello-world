@@ -1,2 +1,2 @@
 Hello!
-Fuck
+Fuck no
